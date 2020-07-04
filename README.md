@@ -1,0 +1,1 @@
+# smarttrash.github.io
